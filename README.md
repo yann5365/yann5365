@@ -1,6 +1,7 @@
 ### Hi! I am in dire need of an omelette. 
 
 - I'm currently working on ...
+- I will update this in 2026. TRUST!!! 
 
 <!--
 **yann5365/yann5365** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
